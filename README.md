@@ -1,0 +1,2 @@
+# Stonks
+My investment journey
